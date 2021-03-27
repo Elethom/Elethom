@@ -4,3 +4,6 @@ Hiya, nya!
 
 * [Articles](https://elethom.me)
 * [Open Resources](https://elethom.me/open)
+* Pet me on the head:
+  * [Patreon](https://www.patreon.com/elethom)
+  * [爱发电](https://www.afdian.net/@elethom)
